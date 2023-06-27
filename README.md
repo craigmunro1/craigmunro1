@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @craigmunro1
 - 👀 I’m interested in ...buyers of Bank notes
-- 🌱 I’m currently learning ...I sell fake bank notes and clown cards
-- 💞️ I’m looking to collaborate on ...on fake bank notes and clown cards
+- 🌱 I’m currently learning ...I sell bank notes and clown cards for all ATM cashout world wide
+- 💞️ I’m looking to collaborate on ...on buyers of bank notes and clown cards
 - 📫 How to reach me ...email   craigmu345@gmail.com
 
 <!---
