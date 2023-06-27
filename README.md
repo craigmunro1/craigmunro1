@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @craigmunro1
-- 👀 I’m interested in ...buyers counterfits
-- 🌱 I’m currently learning ...fakebanknotesproduction
-- 💞️ I’m looking to collaborate on ...buyers of fake banknotes
+- 👀 I’m interested in ...buyers of Bank notes
+- 🌱 I’m currently learning ...I sell fake bank notes and clown cards
+- 💞️ I’m looking to collaborate on ...on fake bank notes and clown cards
 - 📫 How to reach me ...email   craigmu345@gmail.com
 
 <!---
